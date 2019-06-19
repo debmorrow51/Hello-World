@@ -1,2 +1,3 @@
 # Hello-World
 Readme
+I am just trying to find a program that will let me create avatars.  For what I do not yet know.  I'm 68 and fairly computer literate but not at all programming knowledegeable and I'm thinking I'm in way over my head already.  I thought I was downloading what was described as a straighforward program to do what I wanted to do but I'm totally lost already and have no idea what I'm doing here or who I'm supposed to be talking to or what "projects" I'm participating on (or why I ever would do so or who would ever want me to do so) or why I would drag someone else into my ignorant morass.  So this may not last very much past this initial whatever it is I'm doing.  I think I've made a big mistake.
